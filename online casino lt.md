@@ -31,10 +31,10 @@ Geriausi online casino siūlo greitus ir saugius mokėjimus per banko korteles, 
 
 Jei ieškote patikimos lošimų platformos, apsvarstykite šiuos online casino:
 •	[Lex Casino](https://data.ltbet.com/top/lex.casino/) – didelis žaidimų pasirinkimas.
-•	[Ybets Casino]( https://data.ltbet.com/top/ybets/) – dosnios premijos ir greiti išmokėjimai.
-•	[Starda Casino]( https://data.ltbet.com/top/starda.casino/)  – patikima platforma su aukštos kokybės žaidimais.
-•	[Monro Casino]( https://data.ltbet.com/top/monro/) – unikalios akcijos lojaliems žaidėjams.
-•	[GGbet Casino]( https://data.ltbet.com/top/ggbet/) – specializuotas e-sporto ir kazino lošimų portalas.
+•	[Ybets Casino](https://data.ltbet.com/top/ybets/) – dosnios premijos ir greiti išmokėjimai.
+•	[Starda Casino](https://data.ltbet.com/top/starda.casino/)  – patikima platforma su aukštos kokybės žaidimais.
+•	[Monro Casino](https://data.ltbet.com/top/monro/) – unikalios akcijos lojaliems žaidėjams.
+•	[GGbet Casino](https://data.ltbet.com/top/ggbet/) – specializuotas e-sporto ir kazino lošimų portalas.
 
 **Atsakingas lošimas**
 
