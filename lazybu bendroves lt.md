@@ -37,10 +37,14 @@ Dauguma lažybų bendrovių siūlo įvairias premijas, kurios gali padėti padid
 
 Jei ieškote patikimos lažybų bendrovės, verta apsvarstyti šiuos variantus:
 •	[Lex Casino](https://data.ltbet.com/top/lex.casino/)  – gerai žinoma platforma su plačiu sporto statymų pasirinkimu.
-•	[Ybets Casino]( https://data.ltbet.com/top/ybets/) – puikus pasirinkimas aukštų koeficientų mėgėjams.
-•	[Starda Casino]( https://data.ltbet.com/top/starda.casino/)  – siūlo ir sporto lažybas, ir kazino žaidimus.
-•	[Monro Casino]( https://data.ltbet.com/top/monro/) – išsiskiria didelėmis premijomis ir patogiais mokėjimo būdais.
-•	[GGbet Casino]( https://data.ltbet.com/top/ggbet/) – geriausias pasirinkimas e-sporto statymams.
+
+•	[Ybets Casino](https://data.ltbet.com/top/ybets/) – puikus pasirinkimas aukštų koeficientų mėgėjams.
+
+•	[Starda Casino](https://data.ltbet.com/top/starda.casino/)  – siūlo ir sporto lažybas, ir kazino žaidimus.
+
+•	[Monro Casino](https://data.ltbet.com/top/monro/) – išsiskiria didelėmis premijomis ir patogiais mokėjimo būdais.
+
+•	[GGbet Casino](https://data.ltbet.com/top/ggbet/) – geriausias pasirinkimas e-sporto statymams.
 
 Atsakingas lošimas
 
