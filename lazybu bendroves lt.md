@@ -36,6 +36,7 @@ Dauguma lažybų bendrovių siūlo įvairias premijas, kurios gali padėti padid
 **Populiariausios lažybų bendrovės**
 
 Jei ieškote patikimos lažybų bendrovės, verta apsvarstyti šiuos variantus:
+
 •	[Lex Casino](https://data.ltbet.com/top/lex.casino/)  – gerai žinoma platforma su plačiu sporto statymų pasirinkimu.
 
 •	[Ybets Casino](https://data.ltbet.com/top/ybets/) – puikus pasirinkimas aukštų koeficientų mėgėjams.
